@@ -1,16 +1,25 @@
-## Hi there 👋
+## Xáo Tam Phân Bá Ninh
 
-<!--
-**xaotamphanninhvan/xaotamphanninhvan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Xáo tam phân Bá Ninh là đơn vị chuyên Cung cấp Sỉ & Lẻ Xáo Tam Phân lớn nhất cả nước. Chuyên cung cấp các sản phẩm về Xáo Tam Phân gồm trà, trà túi lọc, hàng thô, cao lên men...
 
-Here are some ideas to get you started:
+Thông tin liên hệ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Hotline: 0342.94.7979
+
+Email: hoalanbaninhkhanhhoa@gmail.com
+
+Address: Thôn Tiên Du 1, Ninh Phú, Ninh Hòa, Khánh Hòa
+
+https://xaotamphanninhvan.com/
+
+https://xaotamphanninhvan.com/san-pham/xao-tam-phan-ninh-hoa-khanh-hoa-nguyen-cong
+
+https://xaotamphanninhvan.com/san-pham/am-tra-re-xao-tam-phan
+
+https://xaotamphanninhvan.com/xao-tam-phan.html
+
+https://www.youtube.com/@xaotamphanbaninh
+
+https://www.tiktok.com/@xaotamphanbaninh79
+
+https://xaotamphanninhvan.com/sitemap_index.xml
