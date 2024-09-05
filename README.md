@@ -12,7 +12,7 @@ Address: Thôn Tiên Du 1, Ninh Phú, Ninh Hòa, Khánh Hòa
 
 https://xaotamphanninhvan.com/
 
-https://xaotamphanninhvan.com/san-pham/xao-tam-phan-ninh-hoa-khanh-hoa-nguyen-cong
+https://xaotamphanninhvan.com/san-pham/xao-tam-phan-khanh-hoa-nguyen-cong
 
 https://xaotamphanninhvan.com/san-pham/am-tra-re-xao-tam-phan
 
